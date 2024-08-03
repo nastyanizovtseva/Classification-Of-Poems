@@ -15,6 +15,7 @@
 ## :paw_prints: Контакты
 
 **Telegram**: @nizovtsevanastya
+
 **VK**: [vk.com/nizovtsevanastya](https://vk.com/nizovtsevanastya), [vk.com/kotikov_vse_lubyat](https://m.vk.com/kotikov_vse_lubyat)
   
   
